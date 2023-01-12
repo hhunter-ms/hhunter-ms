@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @hhunter-ms
-- 👀 I’m interested in making good docs, hiking, stress-free video games, weight lifting, traveling, snuggling w dogs.
-- 🌱 I’m currently learning c#, asp.net @hunterhi89
+- 👀 I’m interested in making good docs, hiking, playing chill switch games, working out, traveling, socializing with dogs.
+- 🌱 I’m currently learning how to set boundaries :)
 
 
 <!---
