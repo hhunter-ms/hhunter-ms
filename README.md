@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Hannah
-- 👀 I’m interested in making good docs, hiking, playing chill switch games, working out, traveling, socializing with dogs.
+- 👀 I’m interested in making good docs, hiking, playing Zelda and Elden Ring, working out, traveling, socializing with dogs.
 - 🌱 I’m currently learning how to grow my own veggies :)
 
 
