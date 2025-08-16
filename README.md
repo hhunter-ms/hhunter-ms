@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Hannah
 - 👀 I’m interested in making good docs, hiking, playing Zelda and Elden Ring, working out, traveling, socializing with dogs.
-- 🌱 I’m currently learning how to grow my own veggies :)
+- 🌱 I’m currently learning how to be a mom :)
 
 
 <!---
